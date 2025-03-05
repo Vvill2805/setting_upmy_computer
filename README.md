@@ -1,1 +1,0 @@
-# setting_upmy_computer
